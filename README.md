@@ -5,9 +5,10 @@ Sedang mencari persewaan mobil yang murah di Jogja? jangan di @LiburanJogja :) K
 Ketika Anda memesan jasa sewa mobil di @LiburanJogja, kami memberikan jaminan:
 
 - **Kualitas Armada/Mobil**
-Armada/Mobil kami memang tidak semua baru, namun semuanya selalu berada dalam kondisi prima. Mesin yang terawat, AC yang dingin, dan semuanya selalu dalam kondisi yang bersih sebelum berangkat menjemput tamu.
+Mobil-mobil kami memang tidak semuanya baru, tapi semua selalu berada dalam kondisi yang prima. AC yang dingin, mesin yang terawat, semuanya selalu dalam kondisi yang bersih sebelum berangkat menjemput tamu.
+
 - **Kualitas Supir/Driver**
-Nyaris seluruh driver kami memiliki pengetahuan yang cukup mendalam tentang Jogja. Dan pengetahuan yang dimaksud tidak hanya di bidang pariwisata Jogja saja. Dengan pengalaman dan jam terbang yang tinggi, semua diver kami siap melayani Anda dengan 'gaya' masingmasing. Dengan ramah, tentunya :)
+Nyaris seluruh driver kami memiliki pengetahuan yang cukup mendalam tentang Jogja. Tidak hanya di di aera pariwisatanya saja. Dengan pengalaman dan jam terbang yang tinggi, semua diver kami siap melayani Anda dengan 'gaya' masing-masing.
 
 Umumnya, jasa persewaan mobil di hampir semua kota di Indonesia menyediakan dua pilihan:
 - Sewa mobil saja (tanpa supir / lepas kunci).
